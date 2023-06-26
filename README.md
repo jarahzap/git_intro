@@ -1,1 +1,2 @@
 Pedram Jarahzadeh
+jarahzap@oregonstate.edu
